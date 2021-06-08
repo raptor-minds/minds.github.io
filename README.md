@@ -1,1 +1,0 @@
-# minds.github.io
